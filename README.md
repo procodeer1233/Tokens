@@ -1,2 +1,1 @@
-# Tokens
-If you got notified contact me
+If you got notified by discord contact me at supercraft.store@gmail.com
